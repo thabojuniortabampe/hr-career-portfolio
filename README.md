@@ -30,4 +30,4 @@ Ezazi Primary School
 ## Contact
 Email : thabotaba11@gmail.com
 Phone : 0823637711
-LinkedIn : www.linkedin.com/in/thabo-tabampe
+LinkedIn : https://www.linkedin.com/in/thabo-tabampe-b81686285
