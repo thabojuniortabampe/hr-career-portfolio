@@ -32,3 +32,5 @@ Email : thabotaba11@gmail.com
 Phone : 0823637711
 LinkedIn 
 https://www.linkedin.com/in/thabo-tabampe-b81686285
+## Career Interest 
+HR Internship | Recruitment | Administration | Graduate Programmes | Leanerships
