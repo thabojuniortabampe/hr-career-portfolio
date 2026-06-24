@@ -1,4 +1,4 @@
-Thabo junior Tabampe 
+ Thabo junior Tabampe 
 ## About Me
 I am a Human Resource Management graduate from Boston City Campus with experience in administration, educational support, and stakeholder communication.
 ## Education
@@ -30,4 +30,5 @@ Ezazi Primary School
 ## Contact
 Email : thabotaba11@gmail.com
 Phone : 0823637711
-LinkedIn : https://www.linkedin.com/in/thabo-tabampe-b81686285
+LinkedIn 
+https://www.linkedin.com/in/thabo-tabampe-b81686285
