@@ -1,4 +1,4 @@
-#Thabo junior Tabampe 
+Thabo junior Tabampe 
 ## About Me
 I am a Human Resource Management graduate from Boston City Campus with experience in administration, educational support, and stakeholder communication.
 ## Education
