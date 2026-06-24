@@ -29,6 +29,6 @@ Ezazi Primary School
 - Record Management 
 ## Contact
 Email : thabotaba11@gmail.com
-Phone : 
+Phone : 0823637711
 LinkedIn 
 https://www.linkedin.com/in/thabo-tabampe-b81686285
